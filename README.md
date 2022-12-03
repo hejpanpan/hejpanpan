@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @hejpanpan
 - 👀 I’m interested in cartoon and languages.
-- 🌱 I’m currently learning Japanese：p 
-- 💞️ I’m gradually becoming interested in mathmatics
+- 🌱 I’m currently learning Japanese：p ，also now gradually becoming interested in mathmatics
 - 📫 How to reach me 
 -  nnio94@icloud.com
 -  ins@hejpanpan
