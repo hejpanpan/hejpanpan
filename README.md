@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hejpanpan
-- 👀 I’m interested in cartoon and languages.
-- 🌱 I’m currently learning Japanese：p ，also now gradually becoming interested in mathmatics
+- 👀 Practice Shibari for 2 years, embracing my soul with a rope
+- 🌱 I’m currently learning Japanese and frontend development
 - 📫 How to reach me 
 -  nnio94@icloud.com
 -  ins@hejpanpan
