@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hejpanpan
-- 👀 Practice Shibari for 2 years, embracing my soul with a rope
+- 👀 I have studied Shibari for 2 years, embracing soul with ropes
 - 🌱 I’m currently learning Japanese and frontend development
 - 📫 How to reach me 
 -  nnio94@icloud.com
